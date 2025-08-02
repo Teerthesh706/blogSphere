@@ -3,7 +3,6 @@
 
 [![IMAGE ALT TEXT HERE](https://i.ibb.co/7dYCgzcB/Screenshot-2025-07-28-123353.png)](https://www.youtube.com/watch?v=RSLyNe19mMQ)
 
-## 👆🏻👆🏻Click here for the demonstration video👆🏻👆🏻
 
 **Discription**
 ------------
